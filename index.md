@@ -1,3 +1,3 @@
 # soon
 
-This domain, [GitHub organisation](https://github.com/lemicoin) and [X profile](https://x.com/lemicoin) have been reserved for a project that will be released soon. Stay tuned!
+Domain [Lemicoin.com](https://lemicoin.com), [GitHub organisation](https://github.com/lemicoin) and handle [@lemicoin](https://x.com/lemicoin) on X have been reserved for a memecoin project that will be released soon. Stay tuned!
